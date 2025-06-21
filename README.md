@@ -1,7 +1,8 @@
 <h2>海盗湾官方网站 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>海盗湾（The Pirate Bay）是一个全球知名的种子下载网站，自2003年由三位瑞典人创立以来，一直因其丰富的资源和独特的功能而备受关注。尽管面临版权争议和多次法律诉讼，海盗湾依然拥有庞大的用户群体和丰富的数字内容资源，包括电影、音乐、游戏、软件等。它通过BitTorrent协议支持P2P文件共享，用户可以免费搜索、下载和分享种子文件。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5985.html" target="_blank"><strong>海盗湾最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <p><strong>海量资源</strong>：海盗湾提供超过10万种分类的种子文件，涵盖电影、音乐、软件等多个领域，满足不同用户的需求。</p>
